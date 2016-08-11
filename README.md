@@ -65,3 +65,11 @@ lbyec72-ei2-p5-strings-AprilOilecDeaniellePacayra
 ![](39.PNG)
 
 ![](40.PNG)
+
+![](41.PNG)
+
+![](42.PNG)
+
+![](43.PNG)
+
+![](44.PNG)
